@@ -41,6 +41,7 @@ Tag: Sảng văn báo thù ngược tra
 Từ khóa tìm kiếm: Vai chính: Ngu Lệnh Phi ┃ vai phụ: Yến Lan ┃ cái khác:
 
 # Danh sách chương
+
 [[Hoàng thượng bức ta đi cung đấu 01 - 10]]
 [[Hoàng thượng bức ta đi cung đấu 11 - 20]]
 [[Hoàng thượng bức ta đi cung đấu 21 - 30]]
