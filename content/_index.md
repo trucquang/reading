@@ -25,3 +25,5 @@ If you prefer browsing the contents of this site through a list instead of a gra
 - 🐛 [Submit an Issue](https://github.com/jackyzha0/quartz/issues)
 - 👀 [Discord Community](https://discord.gg/cRFFHYye7t)
 
+[[notes/Hoàng thượng bức ta đi cung đấu/Hoàng Thượng bức ta đi cung đấu - trọng sinh]]
+
