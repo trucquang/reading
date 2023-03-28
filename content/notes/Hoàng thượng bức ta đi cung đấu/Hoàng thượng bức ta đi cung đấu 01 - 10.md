@@ -2,6 +2,8 @@
 Title: "Hoàng Thượng bức ta đi cung đấu 01-10"
 ---
 
+<< [[notes/Hoàng thượng bức ta đi cung đấu/Hoàng Thượng bức ta đi cung đấu - trọng sinh|Văn án]] 
+
 ## Chương 1
 
 _她又要活一次了_

@@ -2,13 +2,14 @@
 Title: "Hoàng Thượng bức ta đi cung đấu"
 ---
 
-Tác giả: **Tiểu đàn loan**
+Tác giả: **Tiểu Đàn Loan**
+Thể loại: Ngôn tình
 
 ![[H195ebc4fae3d497085e4e1b7c64424f9a.jpeg]]
 
 # Văn án
 
-“Phật nói lục đạo luân hồi, lại cô đơn đem ta vây ở nơi này, không gặp ác quỷ, không vào địa ngục, sinh sôi sống thành một con quái vật trong trời đất.”
+“Phật nói lục đạo luân hồi, lại duy độc đem ta vây ở nơi này, không gặp ác quỷ, không vào địa ngục, sinh sôi sống thành một con quái vật trong trời đất.”
 
 Khoảng thời gian ngắn ngủi này, người khác là đi qua liền qua, Ngu Lệnh Phi lại bị vây ở chỗ này, không ngừng lặp lại tử vong cùng sống lại.
 

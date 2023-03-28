@@ -18,11 +18,11 @@ Bàn là đặc chế, nhỏ hơn một chút, chính thích hợp trẻ con nhi
 
 Ngu Lệnh Phi ở bên cạnh trên giường nhặt quyển nhàn thư nhìn, mẹ con hai người ai làm việc nấy, tự có một phen thanh thản.
 
-Yến Điềm Thanh Nhi xa xa truyền đến, rất nhanh liền càng lúc càng rõ ràng, Ngu Lệnh Phi bất đắc dĩ nhìn xem Tiểu Hoàng Ly vẫy vẫy bay vào thư phòng, lại một đầu bổ nhào vào đầu gối mình đầu.
+Yến điềm thanh nhi xa xa truyền đến, rất nhanh liền càng lúc càng rõ ràng, Ngu Lệnh Phi bất đắc dĩ nhìn xem Tiểu Hoàng Ly vẫy vẫy bay vào thư phòng, lại một đầu bổ nhào vào đầu gối mình đầu.
 
 Tiểu Hoàng Ly ngẩng đầu lên, như nước trong veo nho đen giống như mắt to xuyên thấu qua tiểu phiến tử lông mi nhìn xem mình, bờ môi so cánh hoa còn phấn nộn, cười lên bên môi có hai cái hạt gạo lớn lúm đồng tiền, phảng phất có ong mật tại nàng trong cổ họng xây tổ nhưỡng mật, nói chuyện vĩnh viễn là ngọt lịm:
 
-"Mẫu hậu, hàm hàm nghĩ ngài."
+"Mẫu hậu, Hàm Hàm nhớ người."
 
 Ngu Lệnh Phi nhẹ nhẹ gật gật nàng ngạch tâm, nói: "Lại đi chỗ nào quậy rồi? Tiểu hoa bao đều loạn."
 
@@ -58,13 +58,13 @@ Yến Lâm nghiêm túc gật đầu: "Đây là phụ hoàng dạy ta."
 
 Ngu Lệnh Phi ở bên cạnh nhìn xem nhi tử không chút biến sắc liền dùng khó đọc đem tỷ tỷ mình hống tâm hoa nộ phóng, buồn cười lên.
 
-Yến Lâm từ trước đến nay chủ ý liền lớn, từ lúc lớn lên một chút liền không khiến người ta gọi hắn nhũ danh, cũng liền hàm hàm có thể để hắn một tiếng Miên Miên.
+Yến Lâm từ trước đến nay chủ ý liền lớn, từ lúc lớn lên một chút liền không khiến người ta gọi hắn nhũ danh, cũng liền Hàm Hàm có thể để hắn một tiếng Miên Miên.
 
 Tỷ đệ hai người có lẽ là long phượng liên tâm duyên cớ, tình cảm vô cùng tốt, có khi liền bọn hắn làm cha mẹ cũng không sánh nổi hai người bọn hắn thân mật vô gian.
 
 Đối ngoại tục danh là Yến Lan lấy, lấy "Trời hạn gặp mưa" ý tứ, cam chữ đơn bạc, liền từ điềm.
 
-Đối nội dễ dàng cho xưng hô nhũ danh thì là Ngu Lệnh Phi lên, Yến Lan kiên trì để nàng lên, nàng nghĩ rất nhiều đều không nắm được, quay đầu nhìn lại nữ nhi ngủ được đỏ mặt nhào nhào, thốt ra: "Hàm hàm?"
+Đối nội dễ dàng cho xưng hô nhũ danh thì là Ngu Lệnh Phi lên, Yến Lan kiên trì để nàng lên, nàng nghĩ rất nhiều đều không nắm được, quay đầu nhìn lại nữ nhi ngủ được đỏ mặt nhào nhào, thốt ra: "Hàm Hàm?"
 
 Yến Lan niệm hai tiếng, cảm thấy xứng với đáng yêu mềm mại nữ nhi, đồng ý nói: "Liền gọi hàm hàm."
 
@@ -116,11 +116,11 @@ Yến Lâm đi theo bên người nàng, tuổi còn nhỏ liền đã so tỷ t
 
 Yến Lan đem Yến Điềm ôm ở trên gối, trìu mến nói: "Phụ hoàng trở về bồi mẫu hậu, còn có trẫm tiểu công chúa tiểu Hoàng tử."
 
-Yến Điềm sát có việc gật đầu: "Mẫu hậu rất là nghĩ ngài đâu." Lại đưa tay hướng Ngu Lệnh Phi trước mặt một đưa, "Mẫu hậu, hàm hàm cho ngài hái hoa."
+Yến Điềm sát có việc gật đầu: "Mẫu hậu rất là nghĩ ngài đâu." Lại đưa tay hướng Ngu Lệnh Phi trước mặt một đưa, "Mẫu hậu, Hàm Hàm cho ngài hái hoa."
 
 Ngu Lệnh Phi bị nữ nhi đồng ngôn đồng ngữ xấu hổ mặt, cúi đầu tiếp nhận, nhẹ nhàng hít hà, nói: "Mẫu hậu rất là vui vẻ."
 
-Yến Lan nhìn Ngu Lệnh Phi thích, nói: "Quay lại để Lư Đức Tân mở nội khố, bên trong có hộp ngọc điêu các loại hoa, lấy ra cho hàm hàm ngoan."
+Yến Lan nhìn Ngu Lệnh Phi thích, nói: "Quay lại để Lư Đức Tân mở nội khố, bên trong có hộp ngọc điêu các loại hoa, lấy ra cho Hàm Hàm ngoan."
 
 Yến Điềm lộ ra quỷ linh tinh quái cười đến, giòn tiếng nói: "Tạ phụ hoàng!"
 
@@ -250,7 +250,7 @@ Yến Lâm đem sự tình chi tiết cùng phụ hoàng nói, Yến Lan trầm 
 
 Dứt lời, lại vòng tả thừa tướng đích tôn cùng An Dương hầu con trai trưởng.
 
-"Về phần hàm hàm nói ——" Yến Lan thanh âm nhu hòa chút, "Nàng đã hiếu kì, liền gọi đến nhìn xem, nếu là không chịu nổi liền đuổi đi, ngươi coi chừng lấy chút."
+"Về phần Hàm Hàm nói ——" Yến Lan thanh âm nhu hòa chút, "Nàng đã hiếu kì, liền gọi đến nhìn xem, nếu là không chịu nổi liền đuổi đi, ngươi coi chừng lấy chút."
 
 Đáp án này nửa điểm không ra Yến Lâm suy đoán, hắn nhíu mày, ứng tiếng "Phải" .
 
@@ -398,7 +398,7 @@ Một đôi huynh tỷ từ có ấu đệ về sau ổn trọng rất nhiều, 
 
 Yến Điềm không cam lòng yếu thế, đệ đệ nhỏ đồ chơi đều là nàng đưa tới —— đương nhiên nói là nàng sưu tầm, Ngu Lệnh Phi lại biết là cái kia gọi Biện Tử Du vì nàng tìm làm.
 
-Nhắc tới Biện Tử Du, nàng còn từng cùng Yến Lan đề cập qua: "Thật tốt thiếu niên lang, ta đã từng gặp qua một hai lần, thật là anh tư bộc phát tốt bộ dáng, cũng đừng câu trong cung bồi tiếp hàm hàm chơi đùa lãng phí anh tài."
+Nhắc tới Biện Tử Du, nàng còn từng cùng Yến Lan đề cập qua: "Thật tốt thiếu niên lang, ta đã từng gặp qua một hai lần, thật là anh tư bộc phát tốt bộ dáng, cũng đừng câu trong cung bồi tiếp Hàm Hàm chơi đùa lãng phí anh tài."
 
 "Nghe nói hắn tuổi còn nhỏ, một thanh Hồng Anh thương liền múa đến vô cùng tốt đâu."
 
@@ -562,7 +562,7 @@ Yến Điềm le lưỡi, lại tại Ngu Lệnh Phi cánh tay bên trên cọ x
 
 Ngu Lệnh Phi bật cười nhìn xem nàng nhỏ nhắn xinh xắn lưng ảnh, Yến Lan đột nhiên thở dài nói: "Trẫm tiểu công chúa lại không tin trẫm."
 
-Ngu Lệnh Phi nghiêng nghiêng đầu, khẽ cười nói: "Hoàng Thượng làm gì đau buồn, Hoàng Thượng cùng ta hứa hẹn thời điểm hàm hàm còn chưa xuất thế, có thể nghe nói Hoàng Thượng tình ý duy ta một người thôi."
+Ngu Lệnh Phi nghiêng nghiêng đầu, khẽ cười nói: "Hoàng Thượng làm gì đau buồn, Hoàng Thượng cùng ta hứa hẹn thời điểm Hàm Hàm còn chưa xuất thế, có thể nghe nói Hoàng Thượng tình ý duy ta một người thôi."
 
 Yến Lan tinh tế nhìn nàng mặt mày, khẽ cười nói: "Ngươi tin ta."
 
@@ -576,14 +576,17 @@ Yến Lan nhìn xem nàng, thật lâu, cũng cười lặp lại:
 
 "Đúng vậy, ai cũng không thể so với chúng ta càng xứng đôi."
 
-### Tác giả có chuyện muốn nói 
 
-Các ngươi hoài nghi ta lái xe, nhưng không có chứng cứ.
+> [!Summary] Tác giả có chuyện muốn nói
+> 
+> Các ngươi hoài nghi ta lái xe, nhưng không có chứng cứ.
+>
+> Phiên ngoại liền đến nơi này, dừng ở nhất ngọt thời điểm, tương cứu trong lúc hoạn nạn.
+>
+> Nhận được dày chiếu, cúi đầu.
+> 
+> Cảm tạ vì ta ném ra bá vương phiếu hoặc tưới tiêu dịch dinh dưỡng tiểu thiên sứ a ~
+> 
+> Phi thường cảm tạ mọi người đối ta duy trì, ta sẽ tiếp tục cố gắng!
 
-Phiên ngoại liền đến nơi này, dừng ở nhất ngọt thời điểm, tương cứu trong lúc hoạn nạn.
 
-Nhận được dày chiếu, cúi đầu.
-
-Cảm tạ vì ta ném ra bá vương phiếu hoặc tưới tiêu dịch dinh dưỡng tiểu thiên sứ a ~
-
-Phi thường cảm tạ mọi người đối ta duy trì, ta sẽ tiếp tục cố gắng!
