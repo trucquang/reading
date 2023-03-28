@@ -42,10 +42,10 @@ Từ khóa tìm kiếm: Vai chính: Ngu Lệnh Phi ┃ vai phụ: Yến Lan ┃ 
 
 # Danh sách chương
 
-[[Hoàng thượng bức ta đi cung đấu 01 - 10]]
-[[Hoàng thượng bức ta đi cung đấu 11 - 20]]
-[[Hoàng thượng bức ta đi cung đấu 21 - 30]]
-[[Hoàng thượng bức ta đi cung đấu 31 - 40]]
-[[Hoàng thượng bức ta đi cung đấu 41 - 50]]
-[[Hoàng thượng bức ta đi cung đấu 51 - 53]]
-[[Hoàng thượng bức ta đi cung đấu - phiên ngoại 1 - 3]]
+- [[Hoàng thượng bức ta đi cung đấu 01 - 10]]
+- [[Hoàng thượng bức ta đi cung đấu 11 - 20]]
+- [[Hoàng thượng bức ta đi cung đấu 21 - 30]]
+- [[Hoàng thượng bức ta đi cung đấu 31 - 40]]
+- [[Hoàng thượng bức ta đi cung đấu 41 - 50]]
+- [[Hoàng thượng bức ta đi cung đấu 51 - 53]]
+- [[Hoàng thượng bức ta đi cung đấu - phiên ngoại 1 - 3]]
